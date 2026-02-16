@@ -10,6 +10,7 @@
 𝙋𝙡𝙚𝙖𝙨𝙚 𝙙𝙤 𝙣𝙤𝙩 𝙗𝙚 𝙨𝙝𝙮 𝙩𝙤 𝙩𝙖𝙡𝙠 𝙬𝙞𝙩𝙝 𝙢𝙚, 𝙄'𝙢 𝙣𝙤𝙩 𝙧𝙪𝙙𝙚, 𝙝𝙚𝙝𝙚! 
 𝙒𝙚𝙡𝙡, 𝙩𝙝𝙞𝙨 𝙞𝙨 𝙖𝙡𝙡 𝙖𝙗𝙤𝙪𝙩 𝙢𝙚! 𝙃𝙖𝙫𝙚 𝙜𝙤𝙤𝙙 𝙙𝙖𝙮 𝙤𝙧 𝙣𝙞𝙜𝙝𝙩. 𝘽𝙮𝙚. 
 ![Image](https://github.com/user-attachments/assets/ea15c73d-3f03-441a-9813-6538d6da0336)
+![Image](https://github.com/user-attachments/assets/e7a2b69c-9817-4596-820a-7365871eefa8)
 <!--
 **WarriorCatss/WarriorCatss** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
